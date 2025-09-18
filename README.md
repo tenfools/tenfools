@@ -1,5 +1,5 @@
-# IM 10 NOT TEN!!! 🤬🤬😡  
-im 10 and im kewl and and luv meeting new people so yu should int w me... and visit my strawpage and atabook.... 
+# IM 10 NOT TEN!!! 🥹🥹
+im 10!!..not 10yrsold...and im kewl and and luv meeting new people so yu should int w me... and visit my strawpage and atabook.... 
 
 feel free to sit w me, chat n c & h!! and please dnc!!ty!
 
