@@ -13,3 +13,5 @@ also check out following list....superkewl & awsum ppl!!!
 PLEASE BMF!! I PROMISE I DONT BITE ^q^
 
 ![](https://komarev.com/ghpvc/?username=tenfools&color=e9ce9a)
+
+art creds : kaifishs on insta - killfishgirl on x !
