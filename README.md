@@ -1,7 +1,7 @@
 # IM 10 NOT TEN!!! 🥹🥹
 im 10!!..not 10yrsold...and im kewl and and luv meeting new people so yu should int w me... and visit my strawpage and atabook.... 
 
-feel free to sit w me, chat n c & h!! and please dnc+inspo!!ty!
+feel free to sit w me, chat n c & h!! and please do not copy+inspo!!ty!
 
 i use any pron but mostly she/her and if i do anything youre uncomfortable with please lmk!!!! ^^
 
